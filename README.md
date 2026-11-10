@@ -1,0 +1,1 @@
+# dist-JOAO-VITOR---MULTIM-DIA-JVRS.exe-assets-opcional-Installer-SETUP_JVRS.iss
